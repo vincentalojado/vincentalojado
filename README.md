@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Vincent
+- 👀 I’m a Product Designer
